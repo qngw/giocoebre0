@@ -1,2 +1,1 @@
-# giocoebreo
-gioco x gli ebrei
+gioco molto divertente per persone poco bianche
